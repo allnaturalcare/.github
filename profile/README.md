@@ -100,6 +100,8 @@ Ingredients like Vitamin A and bilberry extract support vision in low-light cond
 
 7. Supports Comfortable Vision
 
+##[get this on discount](https://en-igenics.us/)
+
 Reduces irritation and promotes a soothing effect on the eyes.
 
 ##iGenics Ingredients: Complete Breakdown
@@ -292,5 +294,24 @@ If you’re looking for a simple, daily solution to improve vision comfort and p
 **allnaturalcare/.github** is a ✨ _special_ ✨ repository because its `profile/README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
+
+Eye Health Supplement,
+
+Vision Support Supplement,
+
+Improve Eyesight Naturally,
+
+Eye Care Tips,
+
+Eye Vitamins,
+
+Best Supplements for Eyes,
+
+Natural Vision Support,
+
+Eye Health for Adults,
+
+Protect Your Vision,
+
 
 
